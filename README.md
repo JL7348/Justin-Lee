@@ -1,4 +1,4 @@
-# Justin-Lee
+# Justin Lee
 My name is Justin Lee.
 I prefer to be called Justin.
 My pronouns are he/him/his.
